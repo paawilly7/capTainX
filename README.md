@@ -1,2 +1,3 @@
 # capTainX
-practicing Student
+ hellooooooooo!!!
+ I'm new here.....
